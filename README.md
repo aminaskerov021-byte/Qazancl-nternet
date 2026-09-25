@@ -1,1 +1,1 @@
-# Qazancl-nternet
+# Qazanclı ınternet
